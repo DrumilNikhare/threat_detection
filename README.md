@@ -1,4 +1,4 @@
-Hey, there here is the my portfolio link you can viste here by this linke 
+Hey, there here is the my portfolio link you can see my work which i done 
 
 <br>
 
